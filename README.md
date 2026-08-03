@@ -12,4 +12,4 @@
 
 📫 Email: [yahyax131kh@gmail.com](mailto:yahyax131kh@gmail.com)
 
-🔗 LinkedIn: linkedin.com/in/يحيى-البيتي-a259bb2a0
+🔗 LinkedIn: [yahya](https://www.linkedin.com/in/yahya-albaiti-a259bb2a0/)
